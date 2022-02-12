@@ -1,3 +1,3 @@
 # Aleksei Ents
 ## Курс QA Python, группа 69
-![](https://hsto.org/webt/at/hc/te/athcte6ga3cwskfno-i48ag7dkk.png)
+![](https://emerging.com/wp-content/uploads/2019/11/PreventingHackersFromStealingYourPOSData.jpg)
